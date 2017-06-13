@@ -10,7 +10,7 @@
 Agu 2016 - Sekarang. Sedang mengambil Sarjana Ilmu Komputer.
 
 ### SMA Negeri 1 Bojonggede
-Agu 2013 &mdash Agu 2016
+Agu 2013 - Agu 2016
 
 ## Pelatihan
 
