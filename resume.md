@@ -29,4 +29,3 @@ Agu 2013 &mdash Agu 2016
 Penyuka Astronomi. Film Fantasi. Bug Bounty. Detective Conan Entusiast.
 
 > Sebaik baiknya manusia adalah manusia yang bermanfaat untuk orang lain
-Copyright 2017. 
