@@ -1,8 +1,8 @@
 # Ahmad Maulvi Alfansuri 
 
-*Mahasiswa Ilmu Komputer IPB*\
-*Kp Pintu Air No 81. RT 01/09 Kab Bogor*\
-*+62 896-876-1446*\
+*Mahasiswa Ilmu Komputer IPB*  
+*Kp Pintu Air No 81. RT 01/09 Kab Bogor*  
+*+62 896-876-1446*  
 *alfakatsuki@gmail.com*
 
 ## Pendidikan 
