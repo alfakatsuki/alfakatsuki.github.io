@@ -27,5 +27,3 @@ Agu 2013 — Agu 2016
 ## Hobi
 
 Penyuka Astronomi. Film Fantasi. Bug Bounty. Detective Conan Entusiast.
-
-> Sebaik baiknya manusia adalah manusia yang bermanfaat untuk orang lain
